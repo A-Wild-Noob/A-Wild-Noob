@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @A-Wild-Noob
+- 👀 I’m interested in: W A T E R
+- 🌱 I’m currently learning: C++
+- 💞️ I’m looking to collaborate on: W A T E R
+- 📫 How to reach me: awildnoobgamezftw@gmail.com
