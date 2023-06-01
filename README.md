@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @A-Wild-Noob
+- 👀 I’m interested in: W A T E R
+- 🌱 I’m currently learning: C++, Java, JavaScript
+- 💞️ I’m looking to collaborate on: Anything
+- 📫 How to reach me: awildnoobgamezftw@gmail.com (I know its cringy but CBA to move to new email)
